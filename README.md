@@ -1,7 +1,7 @@
 # My public files.
 Contact info is listed below.
 
-My carrd: https://tommyatos.carrd.co/
+My carrd: https://tomgray.carrd.co/
 
 My website: https://tommyatos.lol/
 
